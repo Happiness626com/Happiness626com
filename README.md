@@ -6,7 +6,5 @@
 - 😄 i am a student,i am 19 yrs old,i am a very fun person,,i also love acting,and,i am willing to do anything,at any any given time...
 - ⚡ I'm a very funny, and carefree person...
 
-<i live in otokutu, along dsc express way,warri delta state!---
-Happiness626com/Happiness626com is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+<i live in otokutu, along dsc express way,warri delta state!
 --->
